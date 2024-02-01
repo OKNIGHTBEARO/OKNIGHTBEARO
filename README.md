@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OKNIGHTBEARO
-- 👀 I’m interested in manga & anime & Volley ball
+- 👀 I’m interested in manga & anime & Volley ball & my future & technology & code & finance
 - 🌱 I’m currently learning how to build a wedsite by github by myself.
 - 💞️ I’m looking to collaborate on ?
 - 📫 How to reach me E-mail===>liuegeg1919@gmail.com
